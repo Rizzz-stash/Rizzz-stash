@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+- 😄 Ya boy here, Rizqi Fauzan~
+- 🌱 About me? Just an ordinary man who seeks knowledge
 <!--
 **Rizzz-stash/Rizzz-stash** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
